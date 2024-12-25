@@ -29,6 +29,6 @@ I'm a Senior Software Engineer with over 6+ years of experience in building **sc
 - 🧩 When I'm not coding, you can find me solving puzzles or reading about software engineering trends.
 
 ## Let's Connect!
-- **💬 Reach out to me on LinkedIn:** [https://www.linkedin.com/in/mulajim-ali-877910176/]
+- **💬 Reach out to me on LinkedIn:** Click Here(https://www.linkedin.com/in/mulajim-ali-877910176/)
 - **📫 Send me an email:** [mulajimaliofficial@gmail.com]
 - **🐦 Follow me on Twitter:** [https://x.com/mulajimali]
